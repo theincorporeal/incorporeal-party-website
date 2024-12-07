@@ -1,1 +1,1 @@
-# incorporeal-party-website
+# The Incorporeal Party
